@@ -1,0 +1,2 @@
+# core
+waste of time
