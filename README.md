@@ -1,2 +1,2 @@
 # core
-waste of time i 
+waste of time i am
